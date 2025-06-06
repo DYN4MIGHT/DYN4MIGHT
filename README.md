@@ -1,1 +1,1 @@
-# -
+# [![spotify-github-profile](https://spotify-github-profile.EX0RSPACE.com/api/view?uid=31nkywcxedvxgneeo25mapb5xez4&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.EXORSPACE.com/api/view?uid=31nkywcxedvxgneeo25mapb5xez4&redirect=true)
