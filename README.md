@@ -2,3 +2,5 @@
  <div align="center">
   
   <img src="https://cdn.discordapp.com/attachments/998063363563192401/1380460204381962250/Untitled69_20250606161522.png?ex=6843f540&is=6842a3c0&hm=1cf38a64d63b7d40d605476414f54a11379d7a9f79be71b9faea40409ddd049b&" alt="logo"  width="400" height="auto" />
+
+uhhh idate ig.
