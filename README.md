@@ -6,4 +6,4 @@
 [![Untitled78-20250620223334.png](https://i.postimg.cc/jdt8Qbt2/Untitled78-20250620223334.png)](https://postimg.cc/dDNmwg7c)
 
 
- [carrd](https://onlylanga.carrd.co) | [prns.cc](https://pronouns.cc/delusions) | [strawpg](https://idatephobic.straw.page)
+ [carrd](https://hcsegawa.carrd.co) | [prns.cc](https://pronouns.cc/delusions) | [strawpg](https://idatephobic.straw.page)
