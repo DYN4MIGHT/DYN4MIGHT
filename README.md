@@ -1,6 +1,6 @@
 <div align="center">
  
-
+BRUH WIP AGAIN 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=5000&pause=500&color=495A72&width=490&lines=whatever+you+are+,+having+you+by+my+side;is+better+than+not+havin'+you+at+all.)
 
 
