@@ -9,5 +9,5 @@
 whatever⠀you⠀are⠀,⠀havin'⠀you⠀by⠀my⠀side⠀is⠀better⠀than⠀not⠀having⠀you⠀at⠀all⠀.
 
 
- [𝐂](https://hcsegawa.carrd.co)arrd . [𝐏](https://pronouns.cc/)rns.cc . [𝐒](https://idatephobic.straw.page)trpg
+ [𝐂](https://hcsegawa.carrd.co)arrd . [𝐏](https://pronouns.cc/)rns.cc . [𝐑](https://rentry.co/katsvkis)entry
 
