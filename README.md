@@ -4,7 +4,8 @@
 
 <div align="center">
  
-[![Untitled102-20250824143804.png](https://i.postimg.cc/D0g1Xjq5/Untitled102-20250824143804.png)](https://postimg.cc/ctvKqck8)
+
+<img src="https://files.catbox.moe/pyv2ic.png" alt="bkg" width="220" height="220">
 
 whatever⠀you⠀are⠀,⠀havin'⠀you⠀by⠀my⠀side⠀is⠀better⠀than⠀not⠀having⠀you⠀at⠀all⠀.
 
