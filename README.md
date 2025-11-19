@@ -7,7 +7,6 @@
 
 <img src="https://files.catbox.moe/pyv2ic.png" alt="bkg" width="220" height="220">
 
-whatever⠀you⠀are⠀,⠀havin'⠀you⠀by⠀my⠀side⠀is⠀better⠀than⠀not⠀having⠀you⠀at⠀all⠀.
 
 
  [𝐂](https://hcsegawa.carrd.co)arrd . [𝐏](https://pronouns.cc/Dynamight)rns.cc . [𝐑]()entry
