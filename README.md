@@ -4,7 +4,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=DYN4MIGHT&color=6EA9AB) 
+![](https://komarev.com/ghpvc/?username=DYN4MIGHT&label=Extras:&color=6EA9AB&style=plastic) 
 
 <img src="https://files.catbox.moe/pyv2ic.png" alt="bkg" width="220" height="220">
 
