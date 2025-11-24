@@ -10,5 +10,5 @@
 
 
 
- [𝐂](https://hcsegawa.carrd.co)arrd . [𝐏](https://pronouns.cc/Dynamight)rns.cc . [𝐑]()entry
+ [𝐂](https://hcsegawa.carrd.co)arrd . [𝐏](https://pronouns.cc/Dynamight)rns.cc . [𝑮](httsp://guns.lol.dynamight)uns.lol
 
