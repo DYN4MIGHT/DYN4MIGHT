@@ -12,5 +12,5 @@
 
 
 
- [𝐂](https://onlykats.carrd.co)arrd . [𝐏](https://pronouns.cc/Dynamight)rns.cc . [𝑮](https://guns.lol/.dynamight)uns.lol
+ [𝐂](https://1loyd.carrd.co)arrd . [𝐏](https://pronouns.cc/Dynamight)rns.cc . [𝑮](https://guns.lol/.dynamight)uns.lol
 
