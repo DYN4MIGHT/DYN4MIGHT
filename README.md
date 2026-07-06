@@ -17,3 +17,4 @@
 
  [𝐂](https://1loyd.carrd.co)arrd . [𝐏](https://pronouns.cc/Dynamight)rns.cc . [𝑮](https://guns.lol/.dynamight)uns.lol
 
+<img src="https://files.catbox.moe/gpc1d3.png" alt="div2">
